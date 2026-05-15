@@ -1,1 +1,0 @@
-# Ajuste_curvas
